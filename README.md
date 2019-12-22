@@ -1,0 +1,2 @@
+# inject
+bypass anti banned
